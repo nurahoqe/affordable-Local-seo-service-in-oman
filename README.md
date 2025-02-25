@@ -37,6 +37,6 @@ Our analytics track success and refine strategies for better growth.
 
 # Ready to Grow Your Pharmacy?
 Don’t wait—let’s optimize your GMB & website for better rankings and sustainable growth. Contact us today and take your pharmacy to the next level with SEO!
- [Book Now](https://forms.gle/peKkPmBjiuzWbkND9)
+# [Book Now](https://forms.gle/peKkPmBjiuzWbkND9)
  You’ve completed your booking! We’ll contact you shortly, InshaAllah.
 Do SEO, Rule the Local Market! 
